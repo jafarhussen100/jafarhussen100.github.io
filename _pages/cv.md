@@ -45,10 +45,18 @@ Skills
 
   
 * Extracurriculars:
-  *  
-
- 
+  * Running:
+      * Distance runner: training and health maintenance
+      * Competed and trained as a distance runner for the past 7 years on high school team and D1 college team
+      * Currently training and studying the sport indivdually
+   
   
-Service and leadership
-======
-* Currently signed in to 43 different slack teams
+* Service and leadership:
+  * Coordination and Management of Hometown Running Club (starting late spring 2024):
+    * Planning with city council and Mayor
+    * Volunteering running advising services.
+  * Food Pantry volunteer/ leader from 5th-12th Grade (2012-2020):
+    * helped at the local food pantry, organizing volunteers, maintenance of inventory, 
+    * 250+ hours over 7-8 years
+
+
