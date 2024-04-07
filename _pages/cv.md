@@ -19,10 +19,9 @@ Work experience
 * Maryland National Capital Park and Planning Commission: Inclusion Camp Support, June - August 2022, 35-40 hours/week
   * Provided support for children with disabilities (social situations, guidance for activities)
 
-* Greenbelt Department of Public Works:  Horticulture and Park Maintenance Crew Member, June 2021- August 2021, 40 hours/week
+* Greenbelt Department of Public Works:  Horticulture and Park Maintenance Crew Member, June 2021- August 2021, 40 hours/week  
   * Worked as a team with coworkers to clear streets of debris and trees due to storms
   * responding to emergency calls of vegetation that have fallen
-
 
 * Charm City Run: Store Associate
   * Work with customers from many backgrounds regarding:
